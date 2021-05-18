@@ -15,10 +15,11 @@ As of right now, rat is studying a Bachelor of Computer Science and Mathematics 
 
 He supremely sucks at programming but practise makes perfect.
 
-If you are looking to get into contact with rat, his information is below on lines 22 and 24.
+If you are looking to get into contact with rat, his information is below:
 
 
-
+------------------------------------------------
 Business email: uglyirlbusiness@gmail.com
-
 Steam: https://steamcommunity.com/id/ratisgone
+Twitter: https://twitter.com/ratisgone
+------------------------------------------------
