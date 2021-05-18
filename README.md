@@ -23,5 +23,5 @@ Business email: uglyirlbusiness@gmail.com
 ------------------------------------------------
 Steam: http://www.steamcommunity.com/id/ratisgone
 ------------------------------------------------
-Twitter: twitter.com/ratisgone
+Twitter: http://www.twitter.com/ratisgone
 ------------------------------------------------
