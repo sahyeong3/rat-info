@@ -20,8 +20,7 @@ If you are looking to get into contact with rat, his information is below:
 
 ------------------------------------------------
 Business email: uglyirlbusiness@gmail.com
-
-Steam: https://steamcommunity.com/id/ratisgone
-
-Twitter: https://twitter.com/ratisgone
 ------------------------------------------------
+Steam: http://www.steamcommunity.com/id/ratisgone
+------------------------------------------------
+Twitter: twitter.com/ratisgone
